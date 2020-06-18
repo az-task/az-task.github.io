@@ -14,8 +14,5 @@ Ich bin ein Sonderling aus Danzig. Mein Wachstum habe ich mit 3 Jahren eingestel
 
 > Ich blieb der Dreijährige, der Gnom, der Däumling, der nicht aufzustockende Dreikäsehoch, […] blieb der Dreijährige, aber auch Dreimalkluge, den die Erwachsenen alle überragten, der den Erwachsenen so überlegen sein sollte.“ (S. 71)
 
-
-## Das ist Oscars Motto
-
-> Ich blieb der Dreijährige, der Gnom, der Däumling, der nicht aufzustockende Dreikäsehoch, […] blieb der Dreijährige, aber auch Dreimalkluge, den die Erwachsenen alle überragten, der den Erwachsenen so überlegen sein sollte.“ (S. 71)
+<img src="https://upload.wikimedia.org/wikipedia/commons/6/60/G%C3%BCnter_Grass_auf_dem_Blauen_Sofa.jpg"/>
 
